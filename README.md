@@ -1,2 +1,2 @@
-# thongtinthanhtoan
-https://rotby2002.github.io/thongtinthanhtoan
+# UPDATE
+### <a> 2 colors 1 in interface </a>
